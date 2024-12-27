@@ -1,0 +1,1 @@
+# lottoji_pro
